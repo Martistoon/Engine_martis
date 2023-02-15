@@ -9,3 +9,5 @@
 ### Era seu melhor amigo, que tinha acabado de chegar à praia. Eles se abraçaram e conversaram por horas, relembrando momentos felizes do passado e fazendo planos para o futuro. Foi um dia inesquecível, que Clara guardaria para sempre em seu coração.
 
 ### Ao final, Clara terminou sua redação, e mesmo sem saber se ganharia o concurso, se sentiu realizada. Afinal, ela havia viajado para um lugar incrível sem sair de casa, apenas usando a sua imaginação.
+
+###Daí ela morre
