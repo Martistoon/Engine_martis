@@ -10,4 +10,4 @@
 
 ### Ao final, Clara terminou sua redação, e mesmo sem saber se ganharia o concurso, se sentiu realizada. Afinal, ela havia viajado para um lugar incrível sem sair de casa, apenas usando a sua imaginação.
 
-###Daí ela morre
+### Daí ela morre
